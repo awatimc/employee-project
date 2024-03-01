@@ -15,3 +15,6 @@
 
 
 ![5-search](https://github.com/awatimc/employee-project/assets/51613744/ec679c10-8aeb-4c06-b50d-3185e3d37598)
+
+
+![06 -search](https://github.com/awatimc/employee-project/assets/51613744/b13b45f9-5c51-4445-85e2-c635c53a9113)
